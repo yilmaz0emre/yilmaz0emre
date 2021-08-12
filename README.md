@@ -1,4 +1,4 @@
-👋 # Hi, this is Emre YILMAZ and I’m @yilmaz0emre
+# 👋 Hi, this is Emre YILMAZ and I’m @yilmaz0emre
       
 ## 👀 I’m interested in ...
 
